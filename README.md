@@ -1,2 +1,2 @@
 # kismat.ai
-Where Kismat meets AI
+Where luck meets AI
